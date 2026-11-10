@@ -34,4 +34,4 @@ Not tax advice
 Claim figures shown in the app are estimates based on the rate you enter. The app is a record-keeping tool and does not provide tax advice.
 
 Changes and contact
-If this policy changes, the updated version will be posted on this page. Questions: REPLACE-WITH-YOUR-SUPPORT-EMAIL
+If this policy changes, the updated version will be posted on this page. Questions: integratedappsforlife@gmail.com
